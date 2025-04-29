@@ -1,2 +1,2 @@
 # sep27
-september
+september 27
